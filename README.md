@@ -55,7 +55,7 @@
 * عمر الغامدي — [@OmarAlghamdi123](https://github.com/OmarAlghamdi123)
 * أفياء دغريري — [@AfyaaAli](https://github.com/AfyaaAli)
 * شيخة الماضي — [@Shmadhi](https://github.com/Shmadhi)
-* هند أبو ثنين — [@hind-abuthnain](https://github.com/hind-abuthnain)
+* هند أبو ثنين — [@Hind-989](https://github.com/Hind-989)
 
 ---
 
